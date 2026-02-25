@@ -4,7 +4,7 @@
 
 **Web developer**
 
-`@Niku Tecnología`
+`@Singular Agency`
 
 </div>
 
