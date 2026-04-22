@@ -4,7 +4,7 @@
 
 **Web developer**
 
-`@Singular Agency`
+`@Free`
 
 </div>
 
